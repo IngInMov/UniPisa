@@ -1,0 +1,1 @@
+Gli ingegneri informatici sono ragazzi speciali e da tempo hanno creato un loro [GitHub personale](https://github.com/Guray00/IngegneriaInformatica), pieno di materiale e continuamente manutenuto! Clicca sul link in blu!
