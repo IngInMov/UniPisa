@@ -1,2 +1,2 @@
-# Universit-di-Pisa
+# Università di Pisa
 Materiale didattico per gli studenti di Ingegneria presso l'università di Pisa
